@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+### ⚡ INFP 落入世俗的理工男
 <!--
 **i-Corner/i-Corner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
